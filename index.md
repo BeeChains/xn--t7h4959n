@@ -1,4 +1,4 @@
-## 1stOfficial.⚕🌿/ | a Handshake top level domain
+## 1stOfficial.⚕🌿/ | an emoji Handshake top level domain
 | [SERVE THE LIGHT](http://workinthedark.servethelight.hns.to/) | [Contact](https://innerinetcompany.mybigcommerce.com/contact-us/) | [IINC](http://dlink.innerinetcompany.hns.to/) |
 by [![image](https://user-images.githubusercontent.com/37987346/101912317-96206680-3b8f-11eb-910e-d9d7e5015035.png)](https://shapereality.innerinetcompany.hns.to/)
 
