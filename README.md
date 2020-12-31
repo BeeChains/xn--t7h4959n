@@ -7,7 +7,7 @@
 # [Inner I Net Company/](https://shapereality.innerinetcompany.hns.to/)
 "Shape Reality" 
 Our wish is healing for the World, both far and Wide through the Web. Silently calling 
-attention, remembrance and the Will, To Be, The ESSENCE of "I" Found Within The LIGHT of BEING.
+attention, remembrance and the Will, To Be The ESSENCE of "I", Found Within The LIGHT of BEING.
 
 
 - [HNS-DOMAINS/](https://home.hns-domains.hns.to/)
